@@ -1,6 +1,6 @@
 ### Hi there 👋
 - :brain: I’m always eager to refine my analytical skills and learn new tools.
-- :bar_chart: Aspiring data analyst!
+- :bar_chart: Aspiring analyst!
 - 📫 How to reach me: melissawebbfl@gmail.com
 - ⚡ Fun fact: Reading is an old hobby of mine that I recently picked back up and I'm loving it.
 
